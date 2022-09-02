@@ -1,1 +1,0 @@
-5kMAYCs assets
